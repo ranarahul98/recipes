@@ -2,19 +2,18 @@
 
 ## Ingredients
 
-### Blend:
-- 1 large tomato (or 1 can fire-roasted diced tomatoes for more depth)
+### Base:
+- 1 can fire-roasted diced tomatoes
 - 1 cube chicken bouillon
-- 3 cloves garlic
+- 3 cloves garlic, minced
 
 ### Other Ingredients:
-- 2 cloves garlic, minced (for deeper flavor)
+- 2 cloves garlic, minced
 - Bone-in drumsticks (dark meat, or a mix of drumsticks & thighs for more tenderness)
 - 1 cup chicken broth (use homemade or low-sodium for better control over seasoning)
 - ½ onion, finely chopped (mom recommends ¼, but extra onion enhances flavor)
 - 1 tsp cumin (or to taste)
 - 1 cup long-grain white rice (rinse well to remove excess starch for a fluffier texture)
-- 1 can fire-roasted diced tomatoes (or blended tomato mixture)
 - ½ tsp smoked paprika (adds a subtle smokiness)
 - ½ tsp dried oregano (enhances aroma and depth)
 - Salt & pepper (to taste)
@@ -34,7 +33,7 @@
    - Add the rinsed rice and toast it until slightly golden and aromatic.
 
 3. **Combine Ingredients**  
-   - Once the rice is toasted, stir in the blended tomato mixture or fire-roasted diced tomatoes.
+   - Stir in the canned fire-roasted diced tomatoes.
    - Add smoked paprika and dried oregano for a deeper, more aromatic flavor.
    - Pour in 1 cup of chicken broth and 1 cup of the reserved boiled chicken water.
    - Nestle the boiled chicken into the pan, allowing the flavors to infuse.
